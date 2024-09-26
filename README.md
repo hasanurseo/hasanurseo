@@ -1,4 +1,4 @@
-# 👋 Hi, I’m @hasanurrahamn
+# 👋 Hi, I’m Hasanur Rahamn
 
 - 👀 I’m interested in SEO.
 - 🌱 I’m currently learning SEO.
